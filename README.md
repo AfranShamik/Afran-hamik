@@ -1,2 +1,2 @@
-# Afran-hamik
+# Afran Shamik
 Afran Shamik Portfolio
